@@ -1,0 +1,3 @@
+# i-was-fired-by-aramco-overseas-compagny-te-leiden-for-asking-questions-about-moammad-atta-after-911
+
+after a cnn report about mohammad atta aramco credit card used for bying the airline tickets of the hijacked 911 airplanes
