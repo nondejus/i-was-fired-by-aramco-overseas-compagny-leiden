@@ -1,1 +1,0 @@
-# fired-by-aramco-leiden-for-asking-question-about-mohammad-atta-after-911
